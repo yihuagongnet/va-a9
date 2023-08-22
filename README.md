@@ -1,6 +1,6 @@
-# va-a9 91视频永久网址：
+# va-a9 xporn视频永久网址：
 
-https://a19.gay
+https://xporn.men
 
 ```
 谷歌浏览器、百度浏览器、QQ浏览器，夸克浏览器，有些网址在部分浏览器里面无法打开，
@@ -10,12 +10,16 @@ https://a19.gay
 也可以发邮件索取最新网址:yihuagongnet@gmail.com
 ```
 
-# va-a9 91视频最新网址：
+# va-a9 xporn视频最新网址：
 
-https://91porn.sbs
+https://a91.gay
 
-https://91porns.sbs
+https://xporn.lat
 
-https://91porns.pics
+https://xporn.lol
 
-https://91porns.cfd
+https://xporn.buzz
+
+https://xporn.homes
+
+https://xporn.quest
